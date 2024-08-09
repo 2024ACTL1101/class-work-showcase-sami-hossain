@@ -24,5 +24,3 @@ _"Tell me and I forget. Teach me and I remember. Involve me and I learn" - Benja
 **Sami Hossain:**
 
 Throughout ACTL1101, I have mastered the topics listed in principles of actuarial science, and the coding assignment work is mine. I feel much more prepared for my future career.
-
-😄😄😄
